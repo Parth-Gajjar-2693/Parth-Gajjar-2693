@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Parth-Gajjar-2693
+- 👋 Hi, I’m @Parth-Gajjar
 
 
 <!---
